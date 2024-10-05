@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @vinodkumar4922
+- 👋 Hi, I’m @vnod4922
 - 👀 I’m interested in Hacking
 - 🌱 I’m currently learning degree
 - 💞️ I’m looking to collaborate on Hacking group
